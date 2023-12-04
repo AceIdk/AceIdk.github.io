@@ -3,7 +3,7 @@
 # The World Over Heaven #
 <iframe width="560" height="315" src="https://www.youtube.com/embed/ZHoh0XfdGtc?si=7sD4H35FnIQ1NrBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
-![Facade](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.reddit.com%2Fr%2Frespectthreads%2Fcomments%2F14bquia%2Frespect_heaven_ascension_dio_jojos_bizarre%2F&psig=AOvVaw3W-akLBSFAAqNxqpRL-QIq&ust=1701745707905000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCMib34_p9IIDFQAAAAAdAAAAABAZ)
+
 
 ** The World Over Heaven is the Stand of Heaven-Attained DIO featured in JoJo's Bizarre Adventure: Eyes of Heaven. It is an evolved variation of The World and considered by DIO to be the "Ultimate Stand". The World's original ability, which allows DIO to stop the flow of time. In stopped time, DIO can move his own body freely along with any object he touches that he wishes to move, allowing him to strike his defenseless enemies, move to a superior position, and toy with his victims. All force applied by DIO during the time stop continues to exist after the time stop. This is seen when objects that DIO throws can momentarily move during the time stopped time before grinding to a halt. A flurry of knives could fly for several meters before stopping.
 
